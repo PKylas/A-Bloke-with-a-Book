@@ -2,9 +2,9 @@
 
 If you're a fellow story lover, I'm really glad you're here. You see, my head keeps spinning up yarns but these days, I'm into reading others' mad tales. They make me ponder and wonder before I surrender and jot down my thoughts.
 
-You don't agree? Got your tuppence? Can't wait to hear from you in the comments!
+You don't agree with something I said? Got your tuppence? Can't wait to hear from you in the comments.
 
-See you soon...
+See you soon!
 
 ###  So...What exactly do you do?
 
